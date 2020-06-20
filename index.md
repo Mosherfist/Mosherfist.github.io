@@ -11,6 +11,4 @@ Serien und anderen Begleitwerken und ist tief verwurzelt in der modernen Popkult
 * Darth Vader
 * Obi Wan Kenobi
 
-
 > Möge die Macht mit dir sein
-
