@@ -12,3 +12,6 @@ Serien und anderen Begleitwerken und ist tief verwurzelt in der modernen Popkult
 * Obi Wan Kenobi
 
 > Möge die Macht mit dir sein
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/c4/Krieg_der_sterne_german_logo.svg/420px-Krieg_der_sterne_german_logo.svg.png"/>
+
